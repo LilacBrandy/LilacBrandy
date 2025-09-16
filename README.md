@@ -10,6 +10,6 @@ Here are some ideas to get you started: -->
 ### 👯 I’m looking to collaborate on Open Source stuff
 ### 🤔 I’m looking for help with how to automate things
 ### 💬 Ask me about tea, games, working in tech in Western Australia
-### 📫 How to reach me: https://twitter.com/Lilac_Brandy https://www.linkedin.com/in/daniellamathews/
+### 📫 How to reach me: https://www.linkedin.com/in/daniellamathews/
 ### 😄 Pronouns: She/Her but also answers to Dude and Guys
 ### ⚡ Fun fact: ...tba
